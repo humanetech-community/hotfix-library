@@ -1,1 +1,1 @@
-# Humane Technology Harms of Technology Library
+# Humane Technology Harms of Technology Fixes
