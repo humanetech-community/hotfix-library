@@ -1,1 +1,1 @@
-# humane-tech-hotfix-libary
+# Humane Technology Harms of Technology Library
