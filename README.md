@@ -1,1 +1,3 @@
-# Humane Technology Harms of Technology Fixes
+# Humane Tech Harms of Technology Fixes
+
+## "Moving Slowly And Heal Things"
